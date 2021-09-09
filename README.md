@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @tamim-ptyh
+- 👋 Hi, I’m Tamim>
 - 👀 My Name is Tamim Uzzaman
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 🌱 Facebook Security > সাইলেন্ট কিলার>
+- 💞️ Spamming Leader> Cyber Spealist
 - 📫 How to reach me ...
 
 <!---
